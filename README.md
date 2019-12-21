@@ -26,4 +26,5 @@ At the Seattle Public Library there is a young black male, about 21 years old, k
 I want my fucking military ID. You motherfuckers kicked me out of my own airport and took my life from me for a bunch of cell phone hacking perverts. Half of you use their currency. -Cory Andrew Hofstad
 
 Q. When you steal money from people do you put it in bitcoin? -Cory Andrew Hofstad
+
 A. That's always what I do. Why? -Erika Devos @ Seattle International Airport
