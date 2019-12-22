@@ -32,3 +32,18 @@ A. That's always what I do. Why? -Erika Devos @ Seattle International Airport
 "The Nova Scotians did not have an airplane solution. I gave them that, and then we planned 9/11. I had a younger girlfriend, I thought I needed another one and they needed a plane. I grew up with Stan Deal, I got the phone idea from one of the mechanics at the Everett Plant. When he found out what I had been doing with the phones, I followed him home and slit his throat and raped his wife... I raped his kid and his dog, I had to know what the dog felt like. It was dead, it felt different. I still have her their kid in my left pocket, that's how I live." -Scott Hardman
 
 My uncle keeps an old Qualcomm phone he got from Dr. Tony Pham. He uses it to steal babies and young children at the airport. -Cory Andrew Hofstad
+
+Bitcoin mining servers GPUs render pornographic content for porn companies. Bitcoin is ran by QCSuper. -Cory Andrew Hofstad
+
+Don't touch those controllers, they have all our codes on them. -Aric Wiseman
+
+I can use cheat codes -Cory Andrew Hofstad
+
+Are you dumb or something? Not cheat codes, code for planes so we can crash them into buildings.
+
+Who did you come with -Aric Wiseman
+
+Leland Washington -Cory Andrew Hofstad
+
+Well this place is for nova scotians, see all the kids with red hats on? If you aren't one of them you cannot touch the controller. -Aric Wiseman, 2002 Lynnwood
+
