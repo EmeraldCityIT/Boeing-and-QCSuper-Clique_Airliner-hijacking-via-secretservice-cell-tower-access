@@ -1,7 +1,7 @@
-# Boeing-737-MAX-Cell-Tower-Hijacking
-A hacker named comic is using T-Mobile Cell Phone Towers to hijack Boeing 737 civilian airliners during air-to-tower broadcast leaks. The crashes are orchestrated organ harvesting operations in which victims of crashes are harvested by false-flag medical personnel.  
+# Boeing-and-QCSuper-Clique_Airliner-hijacking-via-secretservice-cell-tower-access-QCSuper-and-password-theft
+QCSuper Clique, run by a hacker named comic is using T-Mobile Cell Phone Towers to hijack Boeing (737, 777, 7E7) civilian airliners during air-to-tower broadcast leaks. The crashes are orchestrated organ harvesting operations in which victims of crashes are harvested by false-flag medical personnel. QCSuper created Bitcoin as a form of shares in which hacked Qualcomm phones, passwords, access codes, etc. could only be bought with their bitcoin currency. Bitcoin has gone public and the cartel is using curreny exchange to flood populations with human trafficking cartel. This is how a cartel takes over a planet by downing airplanes. -Cory Andrew Hofstad
 
-"I hijack a tower and scan planes as they enter to match their radio to their BSSID. I get passwords from pilots, executives, and the military. I can control any plane as it approaches airports or within range of country's providers. Once I have a password I get the plane's schedule and I can follow the plane. I connect with the Lynx browser from my Qualcomm phone. To down a jet just write a script (+27, 115%), etc. I was not happy with my pay raise, so I thought I would just make them build a new jet. I kill people, why would I care about building a new jet." -Lucifer 47.922444, -122.303028
+"I hijack a tower and scan planes as they enter to match their radio to their BSSID. I get passwords from pilots, executives, and the military. I can control any plane as it approaches airports or within range of country's providers. Once I have a password I get the plane's schedule and I can follow the plane. I connect with the Lynx browser from my Qualcomm phone. To down a jet just write a script (+27, 115%), etc. I was not happy with my pay raise, so I thought I would just make them build a new jet. I kill people, why would I care about building a new jet." -Maria-Cristina Spiak "Lucifer" 47.922444, -122.303028
 
 "Stanley Deal sold me his shares of Boeing for 1 Million a month for 100 months. He had no idea how much DoD was paying me and he thought he was going to get a couple million down payment, and then I would default. Erika Devos told him what I was making and he realized he was losing his company. I had started test piloting for Boeing and taking on responsibilities at the airport. He set up the Seattle Tacoma Airport human trafficking takeover through connections with several airliners. After the Hillary Clinton incident, my payments kept going to Boeing and he needed more money. When airports started stepping up security because of "Takeover of A Port City", cartels resorted to downing jets just outside of airports and scavenging organs from injured passengers." -Cory Andrew Hofstad
 
@@ -10,3 +10,40 @@ A hacker named comic is using T-Mobile Cell Phone Towers to hijack Boeing 737 ci
 "Scott Hardman bought me the Qualcomm phone." -Maria-Cristina Spiak
 
 "Mike Spiess gets me into the towers, he's like my other half. He's secret service so he has keys to any cell phone tower on the planet. He just gets a bunch of money and he' says he's cool with whatever I do. He's really broke, and he likes to gamble so he has to support his wife Chari however he can you know?" -Maria-Cristina Spiak
+
+"If you want to take a big jet out, like a 777 you need a phone like Margaret Johnson uses to make planes crash. She got the phone from the Edmonds police department, they don't even know that she still has it. She's better at it than me. If you get good, you can make a lot of money. You should try it. She won't let me use hers anymore, she said I made too much of a big deal with the Malaysia Airlines Flight 370 by not letting hem find the bodies. She said they kept looking for them and almost found them through Hillary Clinton." -Maria-Cristina Spiak
+
+"Donald Trump pays for all our trips. All he wants is first dibs on the passwords. He uses those to get organs from the Pilots families. He splits the contact books with Hillary Clinton." -Maria-Cristina Spiak
+
+"Do you see this little device right here? It's a little Nokia Cell phone. With this I can drop any plane out of the sky in the coutry. Matter of fact I can kill any plane in the world. I'm the president, with these guys (pointing to Hillary Clinton and Maria-Cristina Spiak) and this little device, I don't need your military. I'm tired of you guys always in my business. You support the president not the other way around." -Donald Trump 09-01-2016 07:47 Seatac International Airport 
+
+"I can control a 7E7 with a playstation and my motorola sim phone. That's how I crashed a plane into the world trade center. Bill made me do it at my mom's house in Queen Anne. The towers connect from here all the way to D.C. all we have to do is be on the same network where there is service in the area. That is why I do whatever they say, [crying] because they hold that over me all the time. I thought it was a video game." -Margaret Johnson
+
+At the Seattle Public Library there is a young black male, about 21 years old, kind of chubby. He sits on the 9th floor with a video game system. When you get out of elevator turn right and he is at those desks. He uses this system to crash airplanes all day. The media is silent about it because no one knows how to stop it. -Cory Andrew Hofstad
+
+"[gun to her own head] so what are you going to shoot me? Because I did it too, I work for Mike Spiess and the secret service program. They are are telling people we need people for space... But they're just kidnapping, torturing, and killing people." -Angela McClurg
+
+I want my fucking military ID. You motherfuckers kicked me out of my own airport and took my life from me for a bunch of cell phone hacking perverts. Half of you use their currency. -Cory Andrew Hofstad
+
+Q. When you steal money from people do you put it in bitcoin? -Cory Andrew Hofstad
+
+A. That's always what I do. Why? -Erika Devos @ Seattle International Airport
+
+"The Nova Scotians did not have an airplane solution. I gave them that, and then we planned 9/11. I had a younger girlfriend, I thought I needed another one and they needed a plane. I grew up with Stan Deal, I got the phone idea from one of the mechanics at the Everett Plant. When he found out what I had been doing with the phones, I followed him home and slit his throat and raped his wife... I raped his kid and his dog, I had to know what the dog felt like. It was dead, it felt different. I still have her their kid in my left pocket, that's how I live." -Scott Hardman
+
+My uncle keeps an old Qualcomm phone he got from Dr. Tony Pham. He uses it to steal babies and young children at the airport. -Cory Andrew Hofstad
+
+Bitcoin mining servers GPUs render pornographic content for porn companies. Bitcoin is ran by QCSuper. -Cory Andrew Hofstad
+
+Don't touch those controllers, they have all our codes on them. -Aric Wiseman
+
+I can use cheat codes -Cory Andrew Hofstad
+
+Are you dumb or something? Not cheat codes, code for planes so we can crash them into buildings.
+
+Who did you come with -Aric Wiseman
+
+Leland Washington -Cory Andrew Hofstad
+
+Well this place is for nova scotians, see all the kids with red hats on? If you aren't one of them you cannot touch the controller. -Aric Wiseman, 2002 Lynnwood
+
