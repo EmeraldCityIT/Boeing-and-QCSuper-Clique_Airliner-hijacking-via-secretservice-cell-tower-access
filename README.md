@@ -1,6 +1,6 @@
 # Boeing-and-QCSuper-Clique_Airliner-hijacking-via-secretservice-cell-tower-access-QCSuper-and-password-theft
 
-#DCMN Hofstad
+# DCMN Hofstad
 
 QCSuper Clique, run by a hacker named comic is using T-Mobile Cell Phone Towers to hijack Boeing (737, 777, 7E7) civilian airliners during air-to-tower broadcast leaks. The crashes are orchestrated organ harvesting operations in which victims of crashes are harvested by false-flag medical personnel. QCSuper created Bitcoin as a form of shares in which hacked Qualcomm phones, passwords, access codes, etc. could only be bought with their bitcoin currency. Bitcoin has gone public and the cartel is using curreny exchange to flood populations with human trafficking cartel. This is how a cartel takes over a planet by downing airplanes. -Cory Andrew Hofstad
 
@@ -52,4 +52,4 @@ Leland Washington -Cory Andrew Hofstad
 
 Well this place is for nova scotians, see all the kids with red hats on? If you aren't one of them you cannot touch the controller. -Aric Wiseman, 2002 Lynnwood
 
-#DCMN Hofstad
+# DCMN Hofstad
