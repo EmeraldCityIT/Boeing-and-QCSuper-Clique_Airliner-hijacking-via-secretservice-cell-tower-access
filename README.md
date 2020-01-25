@@ -15,6 +15,8 @@ QCSuper Clique, run by a hacker named comic is using T-Mobile Cell Phone Towers 
 
 "Donald Trump pays for all our trips. All he wants is first dibs on the passwords. He uses those to get organs from the Pilots families. He splits the contact books with Hillary Clinton." -Maria-Cristina Spiak
 
+"And I'm gonna take your little space force too hehe. You aren't going to like that one. You should have been my little friend. We put a little weight on you and you bump me back you little bitch you will never be in charge of Space Force. [throws TI-70 operator's manual at me]. I'll put Jay in charge of it. I don't like you putting pedophile behind my name at the airport. I run Serco you punk bitch, I married into it." -Donald Trump
+
 "Do you see this little device right here? It's a little Nokia Cell phone. With this I can drop any plane out of the sky in the coutry. Matter of fact I can kill any plane in the world. I'm the president, with these guys (pointing to Hillary Clinton and Maria-Cristina Spiak) and this little device, I don't need your military. I'm tired of you guys always in my business. You support the president not the other way around." -Donald Trump 09-01-2016 07:47 Seatac International Airport 
 
 "I can control a 7E7 with a playstation and my motorola sim phone. That's how I crashed a plane into the world trade center. Bill made me do it at my mom's house in Queen Anne. The towers connect from here all the way to D.C. all we have to do is be on the same network where there is service in the area. That is why I do whatever they say, [crying] because they hold that over me all the time. I thought it was a video game." -Margaret Johnson
