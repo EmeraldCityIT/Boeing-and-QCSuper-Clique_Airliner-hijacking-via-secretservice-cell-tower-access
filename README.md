@@ -1,4 +1,7 @@
 # Boeing-and-QCSuper-Clique_Airliner-hijacking-via-secretservice-cell-tower-access-QCSuper-and-password-theft
+
+# DCMN Hofstad
+
 QCSuper Clique, run by a hacker named comic is using T-Mobile Cell Phone Towers to hijack Boeing (737, 777, 7E7) civilian airliners during air-to-tower broadcast leaks. The crashes are orchestrated organ harvesting operations in which victims of crashes are harvested by false-flag medical personnel. QCSuper created Bitcoin as a form of shares in which hacked Qualcomm phones, passwords, access codes, etc. could only be bought with their bitcoin currency. Bitcoin has gone public and the cartel is using curreny exchange to flood populations with human trafficking cartel. This is how a cartel takes over a planet by downing airplanes. -Cory Andrew Hofstad
 
 "I hijack a tower and scan planes as they enter to match their radio to their BSSID. I get passwords from pilots, executives, and the military. I can control any plane as it approaches airports or within range of country's providers. Once I have a password I get the plane's schedule and I can follow the plane. I connect with the Lynx browser from my Qualcomm phone. To down a jet just write a script (+27, 115%), etc. I was not happy with my pay raise, so I thought I would just make them build a new jet. I kill people, why would I care about building a new jet." -Maria-Cristina Spiak "Lucifer" 47.922444, -122.303028
@@ -14,6 +17,8 @@ QCSuper Clique, run by a hacker named comic is using T-Mobile Cell Phone Towers 
 "If you want to take a big jet out, like a 777 you need a phone like Margaret Johnson uses to make planes crash. She got the phone from the Edmonds police department, they don't even know that she still has it. She's better at it than me. If you get good, you can make a lot of money. You should try it. She won't let me use hers anymore, she said I made too much of a big deal with the Malaysia Airlines Flight 370 by not letting hem find the bodies. She said they kept looking for them and almost found them through Hillary Clinton." -Maria-Cristina Spiak
 
 "Donald Trump pays for all our trips. All he wants is first dibs on the passwords. He uses those to get organs from the Pilots families. He splits the contact books with Hillary Clinton." -Maria-Cristina Spiak
+
+"And I'm gonna take your little space force too hehe. You aren't going to like that one. You should have been my little friend. We put a little weight on you and you bump me back you little bitch you will never be in charge of Space Force. [throws TI-70 operator's manual at me]. I'll put Jay in charge of it. I don't like you putting pedophile behind my name at the airport. I run Serco you punk bitch, I married into it." -Donald Trump
 
 "Do you see this little device right here? It's a little Nokia Cell phone. With this I can drop any plane out of the sky in the coutry. Matter of fact I can kill any plane in the world. I'm the president, with these guys (pointing to Hillary Clinton and Maria-Cristina Spiak) and this little device, I don't need your military. I'm tired of you guys always in my business. You support the president not the other way around." -Donald Trump 09-01-2016 07:47 Seatac International Airport 
 
@@ -47,3 +52,4 @@ Leland Washington -Cory Andrew Hofstad
 
 Well this place is for nova scotians, see all the kids with red hats on? If you aren't one of them you cannot touch the controller. -Aric Wiseman, 2002 Lynnwood
 
+# DCMN Hofstad
