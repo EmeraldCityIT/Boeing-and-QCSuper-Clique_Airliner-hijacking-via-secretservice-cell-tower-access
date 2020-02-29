@@ -53,6 +53,4 @@ Leland Washington -Cory Andrew Hofstad
 Well this place is for nova scotians, see all the kids with red hats on? If you aren't one of them you cannot touch the controller. -Aric Wiseman, 2002 Lynnwood
 
 "I said those things at the airport because you were waisting time acting like I am invinsible and gathering intel off our kidnappers. I did not care where their HQ was and if we could bomb it while we kept them occupied as kidnappers. I wanted out of that room, I wanted out of being kidnapped. I said those things to piss you off and make you flip out and kill people. I don't like this new intelligence operation if it takes that long for you to gather intel. I could not deal with another 20 minutes of that. What I said made you so mad, that you forgot we were kidnapped. You were bright strike attacked and all you remember now is that I said those bad things." -Donald Trump
-
-"Donald Trump is the hardest working wartime president I have ever seen or read about in history" -DCMN Hofstad
 # DCMN Hofstad
